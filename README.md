@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Muhhashim
 - 👀 I’m interested in Hacking
-- 🌱 I’m currently learning Computer Science
+- 🌱 I’m currently studying Computer Science
 
 <!---
 Muhhashim/Muhhashim is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
