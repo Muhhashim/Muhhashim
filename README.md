@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Muhhashim
-- 👀 I’m interested in Hacking
+- 👀 I’m Certified Ethical Hacker
 - 🌱 I’m currently studying Computer Science
 
 <!---
