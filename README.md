@@ -29,7 +29,7 @@ I'm excited to collaborate on projects that challenge and inspire me. If you're 
 📧 Contact
 You can contact me at [email](m.hashim125@gmail.com) or connect with me on [LinkedIn]([m.hashim125@gmail.com](https://www.linkedin.com/in/muhammad-hashim-4a388a175)). Let's create something amazing together! 🌟
 
-Feel free to check out my portfolio [here]([https://www.linkedin.com/in/muhammad-hashim-4a388a175](https://bitter-raclette-6b4.notion.site/Design-Portfolio-e826ef0f6b70449096bd20acd3dc1876)) to see some of my recent projects! 😊
+Feel free to check out my portfolio [here](https://bitter-raclette-6b4.notion.site/Design-Portfolio-e826ef0f6b70449096bd20acd3dc1876) to see some of my recent projects! 😊
 
 <!---
 Muhhashim/Muhhashim is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
