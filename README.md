@@ -27,7 +27,7 @@ I am always eager to learn and stay updated with the latest design trends and te
 I'm excited to collaborate on projects that challenge and inspire me. If you're looking for a dedicated designer to bring your ideas to life, feel free to reach out! 💌
 
 📧 Contact
-You can contact me at [email](m.hashim125@gmail.com) or connect with me on [LinkedIn]([m.hashim125@gmail.com](https://www.linkedin.com/in/muhammad-hashim-4a388a175)). Let's create something amazing together! 🌟
+You can contact me at [email](m.hashim125@gmail.com) or connect with me on [LinkedIn](https://www.linkedin.com/in/muhammad-hashim-4a388a175). Let's create something amazing together! 🌟
 
 Feel free to check out my portfolio [here](https://bitter-raclette-6b4.notion.site/Design-Portfolio-e826ef0f6b70449096bd20acd3dc1876) to see some of my recent projects! 😊
 
